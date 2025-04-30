@@ -1,0 +1,2 @@
+# https-lawrighthub.com-what-is-the-legal-consequences-of-abortion-in-u-s-
+In the United States, the legal consequences of abortion vary significantly depending on the state, due to the 2022 U.S. Supreme Court decision in Dobbs v. Jackson Women’s Health Organization, which overturned Roe v. Wade. This ruling removed federal constitutional protection for abortion rights, allowing each state to set its own laws.
